@@ -3,4 +3,7 @@
 #everthing is so crazy 
 
 
-#wtf?
+#wtf? CO TU SIĘ DZIEJE??
+
+
+## nooo kurwa :O 
